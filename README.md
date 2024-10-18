@@ -1,0 +1,2 @@
+# demiray
+bilgesayar
